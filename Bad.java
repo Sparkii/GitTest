@@ -1,1 +1,1 @@
-public class Bad Fick dich {
+public class Bad Fick dich {public heda}
